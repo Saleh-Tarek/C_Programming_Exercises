@@ -1,1 +1,1 @@
-Thanks for watching, keep practicing
+Thanks for watching, keep practicing.
